@@ -1,4 +1,4 @@
-# 
+# Get the ultimate OriginPro for PC | OriginPro for Windows script with top OriginPro for PC | OriginPro for Windows Script | parallel-computing + publication-quality-graphics.
 
 
 
